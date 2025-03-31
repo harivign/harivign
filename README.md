@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on data science domain
 - 📫 How to reach me -linkedin https://www.linkedin.com/in/k-hari-vignesh-b075a6279?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 - 😄 Pronouns: Think new and make new
-- ⚡ Fun fact: Always be positive😄 
+- ⚡ Fun fact: Always be positive
 
